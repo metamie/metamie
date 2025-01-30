@@ -1,1 +1,1 @@
- metal sonic  &  amy rose's kid 
+ ![METAMY](https://files.catbox.moe/pec00y.jpg)
